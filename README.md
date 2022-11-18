@@ -1,1 +1,1 @@
-                                                                     👋 Hi, I’m Sumedh Pawar
+                                                                 👋 Hi, I’m Sumedh Pawar
